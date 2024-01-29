@@ -14,7 +14,7 @@ I focus on delivering projects that seamlessly blend functionality and aesthetic
 
 ## 🌱 Learning & Growing
 
-Driven by a desire to continue learning and growing, I am actively seeking opportunities to dive deeper into the world of Frontend Development. Open for remote work (full-time or intrnships).
+Driven by a desire to continue learning and growing, I am actively seeking opportunities to dive deeper into the world of Frontend Development. (Open for internships oppurtonities).
 
 ## 🚀 Let's Connect
 
